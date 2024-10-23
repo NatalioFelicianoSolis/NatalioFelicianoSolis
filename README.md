@@ -1,4 +1,4 @@
-# 🤩 About Me:
+# 🌟 About Me:
 1st Year Student of Bachelor of Science in Computer Science at University of the Immaculate Conception.
 <br> University Account. <br>
 <br> I code. 

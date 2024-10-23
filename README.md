@@ -1,5 +1,7 @@
 # 🤩 About Me:
-1st Year Student of Bachelor of Science in Computer Science at University of the Immaculate Conception.<br><br>I code. 
+1st Year Student of Bachelor of Science in Computer Science at University of the Immaculate Conception.
+University Account.
+<br><br>I code. 
 
 
 # 💻 Tech Stack:

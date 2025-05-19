@@ -1,5 +1,5 @@
 # 🌟 About Me:
-1st Year Student of Bachelor of Science in Computer Science at University of the Immaculate Conception.
+1st Year Student Bachelor of Science in Computer Science
 <br> University Account. <br>
 
 

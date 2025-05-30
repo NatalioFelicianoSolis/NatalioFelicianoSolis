@@ -1,4 +1,4 @@
-# 🌟 About Me:
+# 👑 About Me:
 1st Year Student Bachelor of Science in Computer Science
 
 <br> University Account.<br>

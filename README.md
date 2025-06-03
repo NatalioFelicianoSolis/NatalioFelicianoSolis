@@ -1,6 +1,5 @@
 # 👑 About Me:
-1st Year Student Bachelor of Science in Computer Science
-
+1st Year Computer Science Student
 <br> University Account.<br>
 
 
